@@ -1,2 +1,2 @@
-![alt text](https://insidesherpa.s3.amazonaws.com/completion-certificates/KPMG/m7W4GMqeT3bh9Nb2c_KPMG_rPA5DsDBY2ng8dBEw_completion_certificate.pdf)
+![alt text](https://drive.google.com/file/d/1ajqeWyrXIhrUtn7Fdp1TCTxE3PTf6rH0/view?usp=sharing)
 
